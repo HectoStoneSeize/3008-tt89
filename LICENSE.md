@@ -1,4 +1,4 @@
-
+Experience 3008 like never before with 3008 automatic Script, the #1 Script. Includes god mode and silent aim for unbeatable performance.
 
 
 
